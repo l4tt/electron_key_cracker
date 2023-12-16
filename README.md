@@ -1,5 +1,5 @@
 ### Why did i make this
-Well for 3 months since i started rune, Co and Sirmeme have been ignoring my DMS, sirmeme even had my server manager pixel in DMS. This would be fine, but they egoed me instead of trying to work with me. But hey it's okay i got my little revenge! maybe they will hire me as a pentester now 🤡 and check out my projects on github who knows! Anywas love you Co and sirmeme thanks for Egoing me! ~ Nano (https://discord.gg/runesoftware)
+Well for 3 months since i started rune, Co and Sirmeme have been ignoring my DMS, sirmeme even had my server manager pixel in DMS. This would be fine, but they egoed me instead of trying to work with me. But hey it's okay i got my little revenge! maybe they will hire me as a pentester now 🤡 and check out my projects on github who knows! Anywas love you Co and sirmeme thanks for Egoing me! ~ Nano (https://discord.gg/vision)
 
 ![image](https://github.com/l4tt/electron_key_cracker/assets/97377137/eefc2b58-dd82-4332-9bef-b1da841c596e)
 
